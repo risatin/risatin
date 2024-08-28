@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @risatin
+- 👀 I’m interested in TESS.
+- 🌱 I’m currently learning space.
